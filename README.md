@@ -1,9 +1,27 @@
 # Missing-Clone-Salty
 
-Write something here
-
-Keep in mind this is public to everyone
-
-I am the best at everything
-
-Thank you 
+!\/        !        \/         ./
+!/\        !        |\       ./
+!  \       !       /  \    ./
+!   \______!______|    \ ,/
+!   /\     !    ./\    ,/
+! /   \    !    |  \ ,/
+!/     \___!____|  ,/
+!     / \ _!__ *\,/
+!    !   \ !  \,/
+!    !  | \! ,/
+!----------K/
+!    ! ,!  /|
+!    !/   / |
+!   / \  /  |
+!\./   \/   |
+!/\    /    |
+!  \  /    .o.
+!   \/     :O:
+!   /       "
+!  /
+! /
+!/
+!
+!
+!
